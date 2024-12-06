@@ -1,1 +1,1 @@
-(https://github.com/user-attachments/files/18035994/jfm-v11-id1372.pdf)
+https://austinpublishinggroup.com/family-medicine/fulltext/jfm-v11-id1372.php
